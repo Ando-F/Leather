@@ -10,4 +10,5 @@ https://abzala.com/fajly/besplatnye-vykrojki <br>
 https://dragonking.ru/vykrojki-dlya-kroya-izdelij-iz-kozhi-fajly <br>
 http://www.tehnari.ru/f266/ <br>
 https://sewlab.org/forums/kozhgalantereja-vykrojki-lekala.6/ <br>
+http://www.leathercove.com/ <br>
 https://leathercraft-zero.com
