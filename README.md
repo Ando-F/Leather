@@ -12,4 +12,5 @@ http://www.tehnari.ru/f266/ <br>
 https://sewlab.org/forums/kozhgalantereja-vykrojki-lekala.6/ <br>
 http://www.leathercove.com/ <br>
 https://cutme.info/product-category/vykrojki/ <br>
+https://hahnsatelier.blogspot.com/ <br>
 https://leathercraft-zero.com
